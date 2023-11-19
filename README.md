@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 ALI MAHAMMADOV
 I am Software Engineer 
 
 
